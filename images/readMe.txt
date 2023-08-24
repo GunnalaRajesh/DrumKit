@@ -1,1 +1,0 @@
-Thumbnails Containing Folder
